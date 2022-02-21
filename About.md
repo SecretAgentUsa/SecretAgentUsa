@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SecretAgentUsa
+- 👀 I’m interested in Programming | Roblox lua | HTML | C++ | Python
+- 🌱 I’m currently learning C++ (Just getting better at it)
+- 📫 How to reach me : Roblox: Secret_agentusa (nic) Gmail: TransfurInfection@gmail.com
